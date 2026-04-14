@@ -6,4 +6,4 @@
 
 **[Visit our website →](https://ai-and-history-collaboratory.github.io/)**
 
-**Current season:** December 2025 – May 2026 · **Next session:** 24 February 2026 — MCP as an Interface with Libraries, Archives & Historical Databases
+**Current season:** December 2025 – May 2026 · **Next session:** 5 May 2026 [TBC] — Topic to be confirmed
